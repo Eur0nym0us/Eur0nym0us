@@ -1,4 +1,4 @@
-hiii my name is Euronymous
+hiii my name is Euronymous or Austin
 if you cant already tell, i like black metal!!!
 im usually on the 18+ sever by the spawn area with all the other metalheads (on safe sever im around the carrot farm)
 feel free to cuddle me, i really dont care!!
